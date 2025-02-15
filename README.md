@@ -1,1 +1,1 @@
-![alt text](https://ibb.co/nN1HBmx6)
+[photo-2024-12-06-16-31-06.jpg](https://postimg.cc/RqXCftZX)
